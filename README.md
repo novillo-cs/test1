@@ -1,2 +1,1 @@
-
-HOLA friends!!!!!
+Have a good day!
